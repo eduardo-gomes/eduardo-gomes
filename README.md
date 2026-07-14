@@ -23,7 +23,7 @@ Sou **Eduardo M Gomes**, formando em **Engenharia de Computação** no CEFET/RJ 
 ## 🎓 Formação Acadêmica
 
 **Graduação em Engenharia de Computação** — CEFET/RJ, Uned Petrópolis
-Fevereiro de 2019 – julho de 2026 (previsão de conclusão)
+julho de 2026 (previsão de conclusão)
 
 ## 💼 Experiência
 
